@@ -11,7 +11,7 @@ Sie sind "die sagenhaften Blues Brothers", und sie kriegen
  * dann einen Plattenvertrag und  
  * im letzten Moment die Steuern bezahlt.  
 
-Und mit der IT haben sie auch so ihre Erfahrungen. Elwood: "Ich wette, die Bullen haben dieses neue Computerding." - Jake: "Computerding?" - Elwood: "Das is'n Gerät, mit dem die jederzeit feststellen können, was du am Hacken hast."
+Und mit der IT haben zumindest Elwood auch so seine Erfahrungen gemacht. Elwood: "Ich wette, die Bullen haben dieses neue Computerding." - Jake: "Computerding?" - Elwood: "Das is'n Gerät, mit dem die jederzeit feststellen können, was du am Hacken hast."
 
 ## Eigenschaften
  * nicht zu fassen \- "Sie werden uns nicht kriegen: Wir sind im Auftrag des Herrn unterwegs!"
@@ -23,3 +23,5 @@ Und mit der IT haben sie auch so ihre Erfahrungen. Elwood: "Ich wette, die Bulle
 (Mal davon ab, dass _"Wir sind im Auftrag des Herrn unterwegs!"_ eine geniale Rechtfertigung für fast alles ist.) ;-)
 
 > Wir bringen die Band wieder zusammen!
+
+<img src="https://upload.wikimedia.org/wikipedia/en/f/f5/BluesBrothers.jpg" alt="Elwood, Jake und das Blues-Mobil. Quelle: https://en.wikipedia.org/wiki/File:BluesBrothers.jpg" />
