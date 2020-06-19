@@ -19,7 +19,7 @@ Elwood: _"Ich wette, die Bullen haben dieses neue Computerding."_ - Jake: _"Comp
  * nicht zu fassen \- _"Sie werden uns nicht kriegen: Wir sind im Auftrag des Herrn unterwegs!"_
  * vielseitig \- _"Wir haben beide Sorten: Wir haben Country UND Western."_ Kein Problem für die beiden.
  * schnell \- die Hochverehrte Madonna von der gesegneten Beschleunigung ist auf ihrer Seite 
- * cool \- denn _"Wir haben genug Benzin im Tank, ein halbes Päckchen Zigaretten, es ist dunkel und wir tragen Sonnenbrillen."_ Die werden natürlich auch bei Tageslicht nicht abgesetzt - nur einer ganz besonderen Gelegenheit.
+ * cool \- denn _"Wir haben genug Benzin im Tank, ein halbes Päckchen Zigaretten, es ist dunkel und wir tragen Sonnenbrillen."_ Die werden natürlich auch bei Tageslicht nicht abgesetzt - nur bei einer ganz besonderen Gelegenheit.
 
 ## Ihr Motto ist...
 (Mal davon ab, dass _"Wir sind im Auftrag des Herrn unterwegs!"_ eine geniale Rechtfertigung für fast alles ist.)
