@@ -11,7 +11,8 @@ Sie sind "die sagenhaften Blues Brothers", und sie kriegen
  * dann einen Plattenvertrag und  
  * im letzten Moment die Steuern bezahlt.  
 
-Und mit der IT haben zumindest Elwood auch so seine Erfahrungen gemacht. Elwood: "Ich wette, die Bullen haben dieses neue Computerding." - Jake: "Computerding?" - Elwood: "Das is'n Gerät, mit dem die jederzeit feststellen können, was du am Hacken hast."
+Und mit der IT hat zumindest Elwood auch so seine Erfahrungen gemacht.  
+Elwood: "Ich wette, die Bullen haben dieses neue Computerding." - Jake: "Computerding?" - Elwood: "Das is'n Gerät, mit dem die jederzeit feststellen können, was du am Hacken hast." (Hacken ist hier ein Teil des Fußes, nicht die Tätigkeit an der Tastatur - nur zur Sicherheit) ;-)
 
 ## Eigenschaften
  * nicht zu fassen \- "Sie werden uns nicht kriegen: Wir sind im Auftrag des Herrn unterwegs!"
