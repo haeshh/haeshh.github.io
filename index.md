@@ -1,2 +1,15 @@
 # Jake und Elwood Blues
 
+Ihre Kleidung: Ein schwarzes Anzugjackett. Ein Paar schwarze Anzughosen. Ein Hut. Schwarrrrz!  
+Ihr Auftrag: 5000 Dollar für die Steuerschuld der Pinguintante auftreiben.  
+Ihre Freunde: Die Band. Und ein paar der weltbesten Soul- und Blues-Musiker ihrer Zeit.  
+Ihre Gegner: Die Polizei. Nazis. "The Good Ole Boys" aus Nashville. Und Prinzessin Leia (nun ja, Carrie Fisher, als sie mal nicht Lukes Schwester war - dafür mit Flammenwerfer statt Laserschwert).  
+
+Sie sind "die sagenhaften Blues Brothers", und sie kriegen  
+ nicht nur die Hucke voll,  
+ sondern auch den Konzertsaal,  
+ dann einen Plattenvertrag und  
+ im letzten Moment die Steuern bezahlt.  
+
+Und mit der IT haben sie auch so ihre Erfahrungen. Elwood: "Ich wette, die Bullen haben dieses neue Computerding." - Jake: "Computerding?" - Elwood: "Das is'n Gerät, mit dem die jederzeit feststellen können, was du am Hacken hast."
+
